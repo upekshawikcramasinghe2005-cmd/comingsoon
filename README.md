@@ -1,1 +1,1 @@
-Enjoy my project(https://upekshawikcramasinghe2005-cmd.github.io/comingsoon/)
+Enjoy my project https://upekshawikcramasinghe2005-cmd.github.io/comingsoon/
